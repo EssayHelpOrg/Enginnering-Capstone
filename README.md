@@ -1,1 +1,11 @@
-# Enginnering-Capstone
+<h1> Top Tips for Writing a Capstone Project Paper</h1>
+<p>It is often said that the length of a capstone project is dependent on various factors. Among them is the complexity of the task. In this case, you must ensure that the theme is broad enough for somebody to develop it without doing anything, provide some supporting evidence, and showcase how you have conducted research. It is also important to know that you can rely on either works of art or non-native English as your sources of information. The following are some of the tips that will enable you to formulate a top-notch capstone paper.</p>
+<h2> Outline</h2>
+<p>An outline is a plan that forms the structure of the whole paper. A common layout that we shall use is the outline of a thesis. Sometimes, institutions may give out outlines for their papers, so if not, make sure that you have an outline before commencing any writing. You should always utilize such outlines whenever you are writing a capstone project, and they will guide you through the entire writing procedure <a href="https://www.capstonepaper.net/">capstone paper company</a>.</p>
+<h2> Create a Thesis Statement</h2>
+<p>As a clue into the type of background data you need to include in the capstone project, try to brainstorm a little bit. reply to whatever comes in your mind, If not, read past the topic and notice what gaps there might be. Base your thoughts on the best sources of data.</p>
+<h2> Engineering capstone project ideas</h2>
+<p>After introducing the ideas, let the reader see whether you are comfortable with the format. If not, look at the file for structure and if the arguments are OK. Go for a more elaborate version of that. An engineering capstone project is mainly based on discussion and solutions that will assist the user in finding the solution. Do not forget to show the results from the analysis, because they will then act as evidence of the conclusion you are promising to make.</p>
+<h2> Structure of the proposal</h2>
+ The structure of the capstone project ideas depends entirely on the specifications. There are several, depending on the requirements issued by the supervisors. Even so, the following are the basic ones that you ought to keep in mind
+ <img class="featurable" style="max-height:300px;max-width:400px;" itemprop="image" src="https://ntelt.com/wp-content/uploads/2018/10/essaywritingtips.jpg"/><br><br>
